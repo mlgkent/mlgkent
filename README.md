@@ -6,3 +6,5 @@ Damian waynes #1  ‎ ૮ ․ ․ ྀིა
 
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
 <img width="70" height="150" alt="Untitled1312_20260404201206" src="https://i.postimg.cc/P5jJR3pz/Untitled1312-20260404201206.png" />
+
+[PLEASE READ THIS DOC](https://docs.google.com/document/d/13TIdqOXTT74hAN9TeIG8jt6IL9WcAt4n6Mz_fy4HeDw/edit?usp=drivesdk)
