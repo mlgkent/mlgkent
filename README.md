@@ -1,6 +1,6 @@
 ‎<img width="100" height="100" alt="Untitled382_20260404231121" src="https://i.postimg.cc/MZ0kzq9y/Untitled382-20260404231121.png" />
 jon ♪ andrej ‎ ![IMG_1361](https://github.com/user-attachments/assets/1bb5eb4f-9976-432e-91fe-6c332153c4f7)
-*thee* jon kent of ponytown ! @title-town
+*thee* jon kent of ponytown ! [@title-town](https://github.com/title-town)
 damian waynes #1  ‎ ૮ ․ ․ ྀིა
 [rentry](https://rentry.co/jonkent) ![IMG_1363](https://github.com/user-attachments/assets/66084f26-95b2-4144-b8bd-f644f8e1120b) [ata](https://jonkent.atabook.org) ![IMG_1363](https://github.com/user-attachments/assets/66084f26-95b2-4144-b8bd-f644f8e1120b) [listo](https://listography.com/jonkent)
 
