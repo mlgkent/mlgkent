@@ -11,4 +11,4 @@ semiafk  usually  ,  c+h  if  ur  not  a  pt  dc  area  weirdo
 
 [DOC ON BREAD. !READ](https://docs.google.com/document/d/13TIdqOXTT74hAN9TeIG8jt6IL9WcAt4n6Mz_fy4HeDw/edit?usp=drivesdk)
 
-[RESPONSE TO MOU. PLEASE READ](https://rantotheground.straw.page) ⚠️
+[RESPONSE TO MOU. PLEASE READ](https://rentry.co/sm3emxpz) ⚠️
