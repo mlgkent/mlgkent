@@ -1,7 +1,7 @@
 ‎<p align="center"> <img width="600" height="450" alt="Untitled382_20260404231121" src="https://files.catbox.moe/44uhga.png"> </p>
-<p align="center"> jon ♪ andrej !! </p>
+<p align="center"> jon 彡 andrej 🍼 </p>
 
-<p align="center"> *thee* jon kent of ponytown !  <a href="https://github.com/title-town">title-town</a>
+<p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">title-town</a>
 damian waynes #1 fan  ‎ ૮ ․ ․ ྀིა 
 
 <p align="center"> <a href="https://rentry.co/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
