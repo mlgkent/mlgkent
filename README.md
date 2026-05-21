@@ -1,4 +1,4 @@
-‎<img width="1100" height="900" alt="Untitled382_20260404231121" src="https://files.catbox.moe/44uhga.png" />
+‎<img width="600" height="450" alt="Untitled382_20260404231121" src="https://files.catbox.moe/44uhga.png" />
 jon ♪ andrej ‎ ![IMG_1361](https://github.com/user-attachments/assets/1bb5eb4f-9976-432e-91fe-6c332153c4f7)
 *thee* jon kent of ponytown ! [@title-town](https://github.com/title-town)
 damian waynes #1  ‎ ૮ ․ ․ ྀིა
