@@ -1,8 +1,8 @@
-‎<p align="center"> <img width="600" height="450" alt="Untitled382_20260404231121" src="https://files.catbox.moe/44uhga.png"> </p>
+‎<p align="center"> <img width="600" height="600" alt="Untitled382_20260404231121" src="https://files.catbox.moe/es1bhh.png"> </p>
 <p align="center"> jon 彡 andrej 🍼 </p>
 
 <p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a>
-damian waynes #1 fan  ‎ ૮ ․ ․ ྀིა 
+damian waynes #1 fan <a href="https://github.com/fan-town">@fan-town</a> ‎ ૮ ◜ ๑ ◝ ྀིა 
 
 <p align="center"> <a href="https://rentry.co/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
@@ -17,7 +17,7 @@ damian waynes #1 fan  ‎ ૮ ․ ․ ྀིა
 <details>
   <summary>byi</summary>
 
-  i am a heavy yumeshipper, i am ns but do not believe i can own fiction NOR am i toxic, harass, or am in psychosis. i am just very protective over my interests overall as i am autistic. i make crude jokes and oftentimes offensive jokes as well. dont at all come into my vicinity if you genuinely believe damijon is "proship". define proship. read a comic. and idk, stop believing everything twitter tells you. i hate sheeple, get an own opinion yourself without the aid of a second party. i heavily dislike ignorance and naievty, that being said; do not talk to me if you believe everyone can be friends, especially on ponytown. if youre friends with a person i dislike/have had drama with before i do NOT want to be friends with you. i 99/100 times will tell you, so dont get mad when i eventually block you if you cannot seem to respect me. i try to do this for everyone as well. if you are an ex-friend or ive had drama with you in the past leave me alone, and my friends too. 
+  i am a heavy yumeshipper, i am ns but do not believe i can own fiction NOR am i toxic, harass, or am in psychosis. i am just very protective over my interests overall as i am autistic. as well as my IDs, im not a kin/fictkin/irl unless i make that very clear. i dont believe in doubles because im the only one of me, and i never take them seriously. i make crude jokes and oftentimes offensive jokes as well. dont at all come into my vicinity if you genuinely believe damijon is "proship". define proship. read a comic. and idk, stop believing everything twitter tells you. i hate sheeple, get an own opinion yourself without the aid of a second party. i heavily dislike ignorance and naievty, that being said; do not talk to me if you believe everyone can be friends, especially on ponytown. if youre friends with a person i dislike/have had drama with before i do NOT want to be friends with you. i 99/100 times will tell you, so dont get mad when i eventually block you if you cannot seem to respect me. i try to do this for everyone as well. if you are an ex-friend or ive had drama with you in the past leave me alone, and my friends too. 
 
 </details>
 
