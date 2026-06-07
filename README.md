@@ -4,7 +4,7 @@
 <p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a>
 damian waynes #1 fan <a href="https://github.com/fan-town">@fan-town</a> ‎ ૮ ◜ ๑ ◝ ྀིა 
 
-<p align="center"> <a href="https://rentry.co/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
+<p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
 <img width="84" height="45" alt="Untitled1312_20260404201206" src="https://i.postimg.cc/P5jJR3pz/Untitled1312-20260404201206.png" />
