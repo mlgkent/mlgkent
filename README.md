@@ -14,6 +14,8 @@ damian waynes #1 fan <a href="https://github.com/fan-town">@fan-town</a> ‎ ૮
 <img width="84" height="45" alt="untitled" src="https://files.catbox.moe/hhqgqq.gif" />
 <img width="84" height="45" alt="untitled" src="https://files.catbox.moe/gjfoms.gif" />
 <img width="84" height="45" alt="untitled" src="https://files.catbox.moe/rkv9dm.webp" />
+<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/6m7dbd.png" />
+credit undyingregret to the terrible jon pony stamp
 <details>
   <summary>byi</summary>
 
