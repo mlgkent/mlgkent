@@ -25,7 +25,7 @@ credit undyingregret to the terrible jon pony stamp
 
 <details>
   <summary>pt info</summary>
-  i am mostly afk half the time, booping usually gets my attention but usually not, whispering perferred. "?" means im active, idle moon means im off and on active, and dnd will not get you a response. you can c+h with me if i have dni or any variation of that in my name, or if i dont. i block/hide people if theyre friends with people i dont like/ex friends, i will also block hide temp if you manage to annoy me/if im overwhelmed.
+  i am mostly afk half the time, booping usually gets my attention but usually not, whispering perferred. "?" means im active, idle moon means im off and on active, and dnd will not get you a response. you can c+h with me if i have dni or any variation of that in my name, or if i dont. i block/hide people if theyre friends with people i dont like/ex friends, i will also block hide temp if you manage to annoy me/if im overwhelmed. DO NOT AT ALL copy or inspo from my ponies i CAN tell. especially if i change something different specifically for me aka pink glasses jon. be original because youre just an ugly version of me... sns
 
   </details>
 
