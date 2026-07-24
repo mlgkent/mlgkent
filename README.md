@@ -1,8 +1,8 @@
 ‎<p align="center"> <img width="600" height="600" alt="Untitled382_20260404231121" src="https://files.catbox.moe/es1bhh.png"> </p>
 <p align="center"> jon 彡 andrej 🍼 </p>
 
-<p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a>
-damian waynes #1 fan <a href="https://github.com/fan-town">@fan-town</a> ‎ ૮ ◜ ๑ ◝ ྀིა 
+<p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
+damian waynes #1 fan ever <a href="https://github.com/fan-town">@fan-town</a> ‎ ૮ ◜ ๑ ◝ ྀིა 
 
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
