@@ -1,4 +1,4 @@
-[to @sebvsene and @timstalkerdrake](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?usp=drivesdk) READ if you are friends with them.
+[to @sebvsene and @timstalkerdrake](https://docs.google.com/document/d/1l6IqZlQRzFOSc3J94z5RJZ6U153htEv4OaFvk_0iouQ/edit?usp=drivesdk) READ if you are friends/know them.
 ‎<p align="center"> <img width="600" height="600" alt="Untitled382_20260404231121" src="https://files.catbox.moe/es1bhh.png"> </p>
 <p align="center"> jon 彡 andrej 🍼 </p>
 
