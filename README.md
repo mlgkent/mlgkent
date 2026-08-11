@@ -2,7 +2,7 @@
 <p align="center"> jon 彡 andrej 🍼 </p>
 
 <p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
-damian waynes #1 fan ever <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/ponytownyumeshippers">@ponytownyumeshippers</a>‎ ૮ ◜ ๑ ◝ ྀིა 
+damian waynes #1 fan ever <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/ponytownyumeshippers">@ponytownyumeshippers</a>‎ & damijon shipper ever <a href="https://github.com/pt-loveforfictional">@pt-loveforfictional</a> ૮ ◜ ๑ ◝ ྀིა 
 
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
