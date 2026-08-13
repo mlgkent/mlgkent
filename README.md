@@ -1,9 +1,10 @@
-‎<p align="center"> <img width="600" height="600" alt="Untitled382_20260404231121" src="https://files.catbox.moe/es1bhh.png"> </p>
-<p align="center"> jon 彡 andrej 🍼 </p>
+‎<p align="center"> <img width="300" height="400" alt="Untitled382_20260404231121" src="https://files.catbox.moe/o2bdxs.png"> </p>
+<p align="center"> jon ℘ andrej （＾Ｏ＾☆♪ </p>
 
-<p align="center"> *thee* jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
+<p align="center"> thee jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
 damian waynes #1 fan ever <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/ponytownyumeshippers">@ponytownyumeshippers</a>‎ & damijon shipper ever <a href="https://github.com/pt-loveforfictional">@pt-loveforfictional</a> ૮ ◜ ๑ ◝ ྀིა 
 
+<p align="center"> refer 2 my links … </p>
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
@@ -16,16 +17,10 @@ damian waynes #1 fan ever <a href="https://github.com/fans-town">@fans-town</a> 
 <img width="84" height="45" alt="untitled" src="https://files.catbox.moe/rkv9dm.webp" />
 <img width="84" height="45" alt="untitled" src="https://files.catbox.moe/6m7dbd.png" />
 credit undyingregret to the terrible jon pony stamp
-<details>
-  <summary>byi</summary>
-
-  i am a heavy yumeshipper, i am ns but do not believe i can own fiction NOR am i toxic, harass, or am in psychosis. i am just very protective over my interests overall as i am autistic. as well as my IDs, im not a kin/fictkin/irl unless i make that very clear. i dont believe in doubles because im the only one of me, and i never take them seriously. i make crude jokes and oftentimes offensive jokes as well. dont at all come into my vicinity if you genuinely believe damijon is "proship". define proship. read a comic. and idk, stop believing everything twitter tells you. i hate sheeple, get an own opinion yourself without the aid of a second party. i heavily dislike ignorance and naievty, that being said; do not talk to me if you believe everyone can be friends, especially on ponytown. if youre friends with a person i dislike/have had drama with before i do NOT want to be friends with you. i 99/100 times will tell you, so dont get mad when i eventually block you if you cannot seem to respect me. i try to do this for everyone as well. if you are an ex-friend or ive had drama with you in the past leave me alone, and my friends too. 
-
-</details>
 
 <details>
   <summary>pt info</summary>
-  i am mostly afk half the time, booping usually gets my attention but usually not, whispering perferred. "?" means im active, idle moon means im off and on active, and dnd will not get you a response. you can c+h with me if i have dni or any variation of that in my name, or if i dont. i block/hide people if theyre friends with people i dont like/ex friends, i will also block hide temp if you manage to annoy me/if im overwhelmed. DO NOT AT ALL copy or inspo from my ponies i CAN tell. especially if i change something different specifically for me aka pink glasses jon. be original because youre just an ugly version of me... sns
+as of recently, i am heavily if not almost afk. c+h is allowed for everyone, i really dont care. i sit mostly in the dc area but i can be found in hetalia as well. dc fans please iwec and batfamily fans keep int on a minimal. ive had too many bad encounters with you. do NOT at ALL copy or inspo my ponies especially jon and his pink/red glasses. it is a personal design choice. ex friends on extremely bad terms please do not int with me or those i know, if youre friends with said ex friends of mine and you want to be my friend i do not encourage it. i will try to let you know if you are friends with me beforehand.
 
   </details>
 
