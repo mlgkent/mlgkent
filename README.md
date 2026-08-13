@@ -7,6 +7,8 @@ damian waynes #1 fan ever <a href="https://github.com/fans-town">@fans-town</a> 
 <p align="center"> refer 2 my links … </p>
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
+<p align="center"> <a href="https://rentry.co/gunsofbrixton">dni . byi</a> </p>
+
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
 <img width="84" height="45" alt="Untitled1312_20260404201206" src="https://i.postimg.cc/P5jJR3pz/Untitled1312-20260404201206.png" />
 <img width="84" height="45" alt="untitled" src="https://files.catbox.moe/pa5vvi.png" />
