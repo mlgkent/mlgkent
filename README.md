@@ -1,4 +1,4 @@
-‎<p align="center"> <img width="300" height="400" alt="Untitled382_20260404231121" src="https://files.catbox.moe/o2bdxs.png"> </p>
+‎<p align="center"> <img height="400" alt="Untitled382_20260404231121" src="https://files.catbox.moe/o2bdxs.png"> </p>
 <p align="center"> jon ℘ andrej （＾Ｏ＾☆♪ </p>
 
 <p align="center"> thee jon kent kent of ponytown 🧁  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
