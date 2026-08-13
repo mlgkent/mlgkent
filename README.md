@@ -1,8 +1,8 @@
 ‎<p align="center"> <img width="300" height="400" alt="Untitled382_20260404231121" src="https://files.catbox.moe/o2bdxs.png"> </p>
 <p align="center"> jon ℘ andrej （＾Ｏ＾☆♪ </p>
 
-<p align="center"> thee jon kent kent of ponytown !  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
-damian waynes #1 fan ever <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/ponytownyumeshippers">@ponytownyumeshippers</a>‎ & damijon shipper ever <a href="https://github.com/pt-loveforfictional">@pt-loveforfictional</a> ૮ ◜ ๑ ◝ ྀིა 
+<p align="center"> thee jon kent kent of ponytown 🧁  <a href="https://github.com/title-town">@title-town</a> <a href="https://github.com/pt-walk-of-fame">@pt-walk-of-fame</a>
+damian waynes #1 fan ever 📛 <a href="https://github.com/fans-town">@fans-town</a> <a href="https://github.com/ponytownyumeshippers">@ponytownyumeshippers</a>‎ & damijon shipper ever <a href="https://github.com/pt-loveforfictional">@pt-loveforfictional</a> ૮ ◜ ๑ ◝ ྀིა 
 
 <p align="center"> refer 2 my links … </p>
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
