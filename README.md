@@ -22,7 +22,7 @@ credit undyingregret to the terrible jon pony stamp
 
 <details>
   <summary>pt info</summary>
-as of recently, i am heavily if not almost afk. c+h is allowed for everyone, i really dont care. i sit mostly in the dc area but i can be found in hetalia as well. dc fans please iwec and batfamily fans keep int on a minimal. ive had too many bad encounters with you. do NOT at ALL copy or inspo my ponies especially jon and his pink/red glasses. it is a personal design choice. ex friends on extremely bad terms please do not int with me or those i know, if youre friends with said ex friends of mine and you want to be my friend i do not encourage it. i will try to let you know if you are friends with me beforehand.
+as of recently, i am heavily if not almost afk. c+h is allowed for everyone, i really dont care. but please, if you see me being directly sat on or me sitting directly on people, LET ME KNOW. i have many people i have hidden and it is hard to tell, ion wanna be even near em… i sit mostly in the dc area but i can be found in hetalia as well. dc fans please iwec and batfamily fans keep int on a minimal. ive had too many bad encounters with you. do NOT at ALL copy or inspo my ponies especially jon and his pink/red glasses. it is a personal design choice. ex friends on extremely bad terms please do not int with me or those i know, if youre friends with said ex friends of mine and you want to be my friend i do not encourage it. i will try to let you know if you are friends with me beforehand.
 
   </details>
 
