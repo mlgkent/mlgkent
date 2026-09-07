@@ -10,14 +10,9 @@ damian waynes #1 fan ever 📛 <a href="https://github.com/fans-town">@fans-town
 <p align="center"> <a href="https://rentry.co/gunsofbrixton">dni . byi</a> </p>
 
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
-<img width="84" height="45" alt="Untitled1312_20260404201206" src="https://i.postimg.cc/P5jJR3pz/Untitled1312-20260404201206.png" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/pa5vvi.png" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/uhvbap.png" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/z6gmxx.gif" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/hhqgqq.gif" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/gjfoms.gif" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/rkv9dm.webp" />
-<img width="84" height="45" alt="untitled" src="https://files.catbox.moe/6m7dbd.png" />
+<img height="70" alt="artByKiller_popolo" src="https://files.catbox.moe/s8s86a.gif" />
+<img height="70" alt="verbatim" src="https://files.catbox.moe/9l2yu8.gif" />
+<img height="70" alt="untitled" src="https://files.catbox.moe/6m7dbd.png" />
 credit undyingregret to the terrible jon pony stamp
 
 <details>
