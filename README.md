@@ -8,10 +8,11 @@ damian waynes #1 fan ever 📛 <a href="https://github.com/fans-town">@fans-town
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
 <p align="center"> <a href="https://rentry.co/gunsofbrixton">dni . byi</a> </p>
-
+<p align="center"> <img height="70" alt="artByKiller_popolo" src="https://files.catbox.moe/s8s86a.gif" />
+<img height="70" alt="verbatim" src="https://files.catbox.moe/9l2yu8.gif" /> </p>
+  
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
-<img height="70" alt="artByKiller_popolo" src="https://files.catbox.moe/s8s86a.gif" />
-<img height="70" alt="verbatim" src="https://files.catbox.moe/9l2yu8.gif" />
+
 <img height="70" alt="untitled" src="https://files.catbox.moe/6m7dbd.png" />
 credit undyingregret to the terrible jon pony stamp
 
