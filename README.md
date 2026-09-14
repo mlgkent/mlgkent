@@ -1,3 +1,4 @@
+<p align="center"> if you add me to an award github, let me know on ata/sp .. i will never see it unless u do ;; </p>
 ‎<p align="center"> <img height="400" alt="Untitled382_20260404231121" src="https://files.catbox.moe/djag24.jpeg"> </p>
 <p align="center"> jon ℘ andrej （＾Ｏ＾☆♪ </p>
 
@@ -7,20 +8,21 @@ damian waynes #1 fan ever 🪖 <a href="https://github.com/fans-town">@fans-town
 <p align="center"> refer 2 my links … </p>
 <p align="center"> <a href="https://rentry.org/jonkent">rentry</a> <a href="https://jonkent.atabook.org">ata</a> <a href="https://listography.com/jonkent">listo</a> </p>
 
+
 <p align="center"> <a href="https://rentry.co/gunsofbrixton">dni . byi</a> </p>
 <p align="center"> <img height="70" alt="artByKiller_popolo" src="https://files.catbox.moe/s8s86a.gif" />
 <img height="70" alt="verbatim" src="https://files.catbox.moe/9l2yu8.gif" /> </p>
+<details>
+  
+<summary>pt info , read!</summary>
+as of recently, i am heavily if not almost afk. c+h is allowed for everyone, i really dont care. but please, if you see me being directly sat on or me sitting directly on people, LET ME KNOW. i have many people i have hidden and it is hard to tell, ion wanna be even near em… i sit mostly in the dc area but i can be found in hetalia as well. dc fans please iwec and batfamily fans keep int on a minimal. ive had too many bad encounters with you. do NOT at ALL copy or inspo my ponies especially jon and his pink/red glasses. it is a personal design choice. however if u do manage to copy me, out of hate or malice to me, i take it as youre ignorant, because at that point i begin to not care. bonus points if you have me in your dni youre so childish, trust me i dont wanna int w you. ex friends on extremely bad terms please do not int with me or those i know, if youre friends with said ex friends of mine and you want to be my friend i do not encourage it. i will try to let you know if you are friends with me beforehand.
+
+ </details>
   
 ![](https://komarev.com/ghpvc/?username=mlgkent&style=plastic&color=87edff&label=superboy)
 
 <img height="70" alt="untitled" src="https://files.catbox.moe/6m7dbd.png" />
 credit undyingregret to the terrible jon pony stamp
-
-<details>
-  <summary>pt info , read!</summary>
-as of recently, i am heavily if not almost afk. c+h is allowed for everyone, i really dont care. but please, if you see me being directly sat on or me sitting directly on people, LET ME KNOW. i have many people i have hidden and it is hard to tell, ion wanna be even near em… i sit mostly in the dc area but i can be found in hetalia as well. dc fans please iwec and batfamily fans keep int on a minimal. ive had too many bad encounters with you. do NOT at ALL copy or inspo my ponies especially jon and his pink/red glasses. it is a personal design choice. however if u do manage to copy me, out of hate or malice to me, i take it as youre ignorant, because at that point i begin to not care. bonus points if you have me in your dni youre so childish, trust me i dont wanna int w you. ex friends on extremely bad terms please do not int with me or those i know, if youre friends with said ex friends of mine and you want to be my friend i do not encourage it. i will try to let you know if you are friends with me beforehand.
-
-  </details>
 
 
 updated 17/7/26 [DOC ON BREAD. !READ](https://docs.google.com/document/d/13TIdqOXTT74hAN9TeIG8jt6IL9WcAt4n6Mz_fy4HeDw/edit?usp=drivesdk)
