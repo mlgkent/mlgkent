@@ -1,4 +1,4 @@
-<p align="center"> if you add me to an award github, let me know on ata/sp .. i will never see it unless u do ;; </p>
+<p align="center"> semi-hiatus for the time being. only active sometimes, likely will be found in dc or countryhumans when online. </p>
 ‎<p align="center"> <img height="400" alt="Untitled382_20260404231121" src="https://files.catbox.moe/djag24.jpeg"> </p>
 <p align="center"> jon ℘ andrej （＾Ｏ＾☆♪ </p>
 
